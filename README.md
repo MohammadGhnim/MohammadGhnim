@@ -9,7 +9,6 @@ You can click the Preview link to take a look at your changes.
 
 - 👯 I’m looking to collaborate on **Projects**
 
-- 📫 How to reach me **mohammadghnim92@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
